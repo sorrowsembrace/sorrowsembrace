@@ -6,5 +6,6 @@ $\color{630b0b}{\text{ No matter what . }}$
 $\color{630b0b}{\text{ You will embrace it . }}$
 $\color{630b0b}{\text{ Because love is a gentle thing . }}$
 $\color{630b0b}{\text{ It comes like tons of bricks, sudden . Too sudden . }}$
-$\color{630b0b}{\text{ But worry not my dear, because once you treat it careful . I promise it wont disappoint you . }}$ 
+$\color{630b0b}{\text{ But worry not my dear, because once you treat it careful . }}$
+$\color{630b0b}{\text{ I promise it wont disappoint you . }}$ 
 $\color{630b0b}{\text{ Embrace the love, deep in love . And the sorrows will go away . }}$
