@@ -3,3 +3,6 @@
  ![image](https://github.com/user-attachments/assets/0be70d98-b9cb-460b-828a-2987fefb70be)
 
 
+> assimilation & travis kin , basic dnis
+
+$\color{black}{\textsf{ i have a rare disorder that where people thought they were made out of glass, easily broken, iwc about it, its a sensitive topic.}}$
