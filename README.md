@@ -4,4 +4,4 @@
 
      assimilation & travis kin , basic dnis
 
-$\color{black}{\textsf{ im not doing so fine, i want comfort. But theres just no one, alone, afraid. Theres no such "hero" to save me, theres only one way. Survival, and guess what? i already want to give up on my life, my future. All. }}$
+$\color{black}{\textsf{ not so active on gh, ok. Bye. }}$
