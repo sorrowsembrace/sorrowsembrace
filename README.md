@@ -4,4 +4,4 @@
 
      assimilation & travis kin , unstable (iwc) , basic dnis
 
-$\color{black}{\textsf{ usually a loner, interacting is very appreciated, i usually c+h random people due to loneliness being very overwheming, i dont dare to make friends, since i have mistreated a lot when i was young.If you want to be my friend, thank you. But a reminder that i will always appreciate you , when youre still by my side, or just know i exist in your friendlist. }}$
+$\color{black}{\textsf{ usually a loner, interacting is very appreciated, i usually c+h random people due to loneliness being very overwheming, i didnt dare to make friends, since i have mistreated a lot when i was young.If you want to be my friend, thank you. But a reminder that i will always appreciate you , when youre still by my side, or just know i exist in your friendlist. }}$
